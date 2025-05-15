@@ -2,6 +2,8 @@
 
 **Monkey Mart Online** is a **funny**, **hyper-casual**, and **addictively charming** simulation game where you run your own grocery store as an adorable monkey! 🍌 Whether you're a fan of **management games**, **idle tycoon adventures**, or just love cute monkeys dashing around, this game will keep you smiling for hours.
 
+## <a href="https://1kb.link/pINWHf">👉 Click To Play Monkey Mart Unblocked 6x 👈</a>
+
 ### 🎮 What is Monkey Mart Online?
 
 In **Monkey Mart**, you play as a fearless little monkey who builds a supermarket empire from scratch. From growing fruits to stocking shelves and selling goods to customers, this game blends **strategy**, **speed**, and **timing** into one **epic store management simulator**.
